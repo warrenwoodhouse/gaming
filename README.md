@@ -1,2 +1,0 @@
-# gaming
-My gaming stuff.
